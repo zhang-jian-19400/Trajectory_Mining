@@ -1,0 +1,1 @@
+D:\学习资料/城市轨迹数据\Geolife Trajectories 1.3\Geolife Trajectories 1.3\Data/000/Trajectory/20090504023301.plt
